@@ -1,4 +1,4 @@
-
+secr Scripts for easter tap simulator - auto-tap and inf-eggs is the ultimate solution for easter tap simulator players! Our scripts provide auto-tap and inf-eggs, ensuring you dominate every match. No bans, no lags—just pure gaming excellence. Join thousands of satisfied users and elevate your easter tap simulator experience today!
 
 
 ---
